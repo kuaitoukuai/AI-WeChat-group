@@ -31,6 +31,9 @@ AI星星之火，还没找到组织？
 
 ![f0c8a2243dc95f47860c380f961bd8b](https://github.com/kuaitoukuai/AI-WeChat-group/assets/73692477/4d6389c2-557c-48c6-b72d-c54358583a41)
 
+![1340678e322b106ee0e7dc231610ea5](https://github.com/kuaitoukuai/AI-WeChat-group/assets/73692477/de2d1051-507d-4706-818f-e646fb7dda3d)
+
+
 ![image](https://github.com/kuaitoukuai/AI-WeChat-group/assets/73692477/eb88036b-a89e-4ec7-be0f-3f0f50632986)
 
 ![image](https://github.com/kuaitoukuai/AI-WeChat-group/assets/73692477/39bd49dd-0e3e-4ea9-a946-18e43d53d6a8)
